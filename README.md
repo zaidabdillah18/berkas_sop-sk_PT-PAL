@@ -1,0 +1,1 @@
+# berkas_sop-sk_PT-PAL
